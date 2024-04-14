@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading sports and leaning new programming langues
 - 🌱 I’m currently learning c java python
 - 💞️ I’m looking to collaborate on c
-- 📫 How to reach me  wechat Zy13271661723  Email 3300989150@qq.com
+- 📫 How to reach me  wechat ZY13271661723  Email 3300989150@qq.com
 - 😄 Pronouns: student
 - ⚡ Fun fact: ...
 
